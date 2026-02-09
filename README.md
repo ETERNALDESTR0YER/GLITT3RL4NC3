@@ -6,7 +6,7 @@
 
 <p align="center">
 CALL ME⠀<b>V</b>⠀//⠀<i><s>NAYTHE</s></i>⠀<i>!!</i>
-<p align="center">⠀⠀⠀⠀⠀⠀ SD.V⠀fictkin⠀/⠀18⠀/⠀bpad+autistic⠀⠀⠀⠀⠀⠀ 
+<p align="center">⠀⠀⠀⠀⠀⠀ SD.V⠀fictkin⠀/⠀20⠀/⠀bpad+autistic⠀⠀⠀⠀⠀⠀ 
 
 ⠀
 
@@ -26,7 +26,7 @@ CALL ME⠀<b>V</b>⠀//⠀<i><s>NAYTHE</s></i>⠀<i>!!</i>
 
 >you're transphobic, xenophobic [(. . .)](https://dni-criteria.carrd.co)    ,
 
-> under 14yo ,
+> under 16yo ,
 
 
 > make a fuss about you being hidden and bothering my friend(s with it⠀⠀<sub>(i will not unhide you anyway) .</sub> 
