@@ -1,12 +1,12 @@
-<div><p align="center"> <img width="260" src="https://i.imgur.com/UDT6u9t.png" ></p>
+<div><p align="center"> <img width="420" src="https://i.imgur.com/GUV3QvT.png" ></p>
 </div>
 
 <p align="center">
 	HELLO!!		
 
 <p align="center">
-CALL ME⠀<b>V</b>⠀//⠀<i><s>NAYTHE</s></i>⠀<i>!!</i>
-<p align="center">⠀⠀⠀⠀⠀⠀ SD.V⠀fictkin⠀/⠀20⠀/⠀bpad+autistic⠀⠀⠀⠀⠀⠀ 
+CALL ME⠀V<s>ee</s>⠀//⠀<i><s>NAYTHE</s></i>⠀<i>!!</i>
+<p align="center">⠀⠀⠀⠀⠀⠀ SD.V+Vee⠀fictkin⠀/⠀20⠀/⠀bpad+autistic⠀⠀⠀⠀⠀⠀ 
 
 ⠀
 
@@ -29,7 +29,7 @@ CALL ME⠀<b>V</b>⠀//⠀<i><s>NAYTHE</s></i>⠀<i>!!</i>
 > under 16yo ,
 
 
-> make a fuss about you being hidden and bothering my friend(s with it⠀⠀<sub>(i will not unhide you anyway) .</sub> 
+> make a fuss about you being hidden and bothering my friend(s) with it⠀⠀<sub>(i will not unhide you anyway) .</sub> 
 
 
 ⠀ 
